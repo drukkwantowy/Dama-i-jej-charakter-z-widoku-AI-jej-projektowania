@@ -1,0 +1,1 @@
+# Dama-i-jej-charakter-z-widoku-AI-jej-projektowania
